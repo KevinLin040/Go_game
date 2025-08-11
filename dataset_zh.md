@@ -79,8 +79,6 @@
 | 第十一屆 | 許皓鋐 | 男 | 十段 | 林君諺 | 男 | 七段 | [連結](https://www.youtube.com/watch?v=xJwUxAdIMz0&list=PLTA6NStN-xXKvdYcBFtrmQwdYM5zE4PGs&index=243) |
 | 第十一屆 | 林君諺 | 男 | 七段 | 許皓鋐 | 男 | 十段 | [連結](https://www.youtube.com/watch?v=dfDv4uhQA3A&list=PLTA6NStN-xXKvdYcBFtrmQwdYM5zE4PGs&index=247) |
 | 第二十七屆三星車險盃(3) | 許皓鋐 | 男 | 八段 | 琴沚玗 | 男 | 四段 | [連結](https://www.youtube.com/watch?v=WQo1UjMW3lY&list=PLTA6NStN-xXKvdYcBFtrmQwdYM5zE4PGs&index=62) |
-| 春蘭盃(2) | 許皓鋐 | 男 | 七段 | 李軒豪 | 男 | 八段 | [連結](https://www.youtube.com/watch?v=06h366eadxs&list=PLTA6NStN-xXKvdYcBFtrmQwdYM5zE4PGs&index=98) |
-| 春蘭盃(2) | 柯潔 | 男 | 九段 | 許皓鋐 | 男 | 七段 | [連結](https://www.youtube.com/watch?v=p9ZfWoLQFWw&list=PLTA6NStN-xXKvdYcBFtrmQwdYM5zE4PGs&index=153) |
 | 混雙世界盃(1) | 黑嘉嘉/許皓鋐 | 女/男 | 七段/七段 | 芝野虎丸/上野愛咲美 | 男/女 | 九段/四段 | [連結](https://www.youtube.com/watch?v=qr9S-XlpSqs&list=PLTA6NStN-xXKvdYcBFtrmQwdYM5zE4PGs&index=99) |
 | 第九屆應氏杯(1) | 許皓鋐 | 男 | 六段 | 趙晨宇 | 男 | 八段 | [連結](https://www.youtube.com/watch?v=7HnRaw8f7ls&list=PLTA6NStN-xXKvdYcBFtrmQwdYM5zE4PGs&index=172) |
 | 新銳邀請賽(3) | 許皓鋐 | 男 | 五段 | 許家元 | 男 | 八段 | [連結](https://www.youtube.com/watch?v=QE-iZfBGpXA&list=PLTA6NStN-xXKvdYcBFtrmQwdYM5zE4PGs&index=252) |

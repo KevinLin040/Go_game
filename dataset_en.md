@@ -77,8 +77,6 @@
 | 第十一屆 | 許皓鋐 | M | 10p | 林君諺 | M | 7p | [Link](https://www.youtube.com/watch?v=xJwUxAdIMz0&list=PLTA6NStN-xXKvdYcBFtrmQwdYM5zE4PGs&index=243) |
 | 第十一屆 | 林君諺 | M | 7p | 許皓鋐 | M | 10p | [Link](https://www.youtube.com/watch?v=dfDv4uhQA3A&list=PLTA6NStN-xXKvdYcBFtrmQwdYM5zE4PGs&index=247) |
 | 第二十七屆三星車險Cup(3) | 許皓鋐 | M | 8p | 琴沚玗 | M | 4p | [Link](https://www.youtube.com/watch?v=WQo1UjMW3lY&list=PLTA6NStN-xXKvdYcBFtrmQwdYM5zE4PGs&index=62) |
-| 春蘭Cup(2) | 許皓鋐 | M | 7p | 李軒豪 | M | 8p | [Link](https://www.youtube.com/watch?v=06h366eadxs&list=PLTA6NStN-xXKvdYcBFtrmQwdYM5zE4PGs&index=98) |
-| 春蘭Cup(2) | 柯潔 | M | 9p | 許皓鋐 | M | 7p | [Link](https://www.youtube.com/watch?v=p9ZfWoLQFWw&list=PLTA6NStN-xXKvdYcBFtrmQwdYM5zE4PGs&index=153) |
 | Mixed PairWorldCup(1) | 黑嘉嘉/許皓鋐 | 女/男 | 七段/七段 | 芝野虎丸/上野愛咲美 | 男/女 | 九段/四段 | [Link](https://www.youtube.com/watch?v=qr9S-XlpSqs&list=PLTA6NStN-xXKvdYcBFtrmQwdYM5zE4PGs&index=99) |
 | 第九屆Ing杯(1) | 許皓鋐 | M | 6p | 趙晨宇 | M | 8p | [Link](https://www.youtube.com/watch?v=7HnRaw8f7ls&list=PLTA6NStN-xXKvdYcBFtrmQwdYM5zE4PGs&index=172) |
 | 新銳邀請Tournament(3) | 許皓鋐 | M | 5p | 許家元 | M | 8p | [Link](https://www.youtube.com/watch?v=QE-iZfBGpXA&list=PLTA6NStN-xXKvdYcBFtrmQwdYM5zE4PGs&index=252) |
